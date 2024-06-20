@@ -1,0 +1,1 @@
+A landing page introducing a start-up from Ghana. The aim of the company is to supply and sell wood produced in Ghana to german customers. The landing page contains information about the company and gives customers the opportunity to get in touch with the company owner
